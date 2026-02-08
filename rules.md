@@ -1,4 +1,5 @@
-Official Rules of the Scottish Cyclist, by Owen Phillipson [archived blog](https://web.archive.org/web/20170430074406/http://www.owenphilipson.com/blog/)
+### Official Rules of the Scottish Cyclist
+by Owen Philipson [archived blog](https://web.archive.org/web/20170430074406/http://www.owenphilipson.com/blog/)
 
 1. Practicality and functionality shall be the primary concerns of the Scottish Cyclist. Under no circumstances should the Scottish Cyclist pay heed to aesthetics or style, either in his/her bicycle or clothing.
 
@@ -56,11 +57,9 @@ Official Rules of the Scottish Cyclist, by Owen Phillipson [archived blog](https
 
 28. Motivational music during training shall consist of whatever motivates the Scottish Cyclist! Suggested tracks include:
 
-500 Miles – The Proclaimers
-Why Does it Always Rain on Me? – Travis
-Caledonia – Rod Stewart
-Take The Long Way Round – Teenage Fanclub
+ - 500 Miles – The Proclaimers
+ - Why Does it Always Rain on Me? – Travis
+ - Caledonia – Rod Stewart
+ - Take The Long Way Round – Teenage Fanclub
 
-29. Water bottles shall preferably be freebies from sportive rides or found at the side of the road when watching pro races. Under no circumstances should they be discarded until completely spent, even when not matching bike or clothing colours.
-
-The aspiring Euro cyclist is instructed not to leave his water bottles on the bike while transporting bikes via bike rack- this is an obvious faux pas for the the Scottish cyclist, as they would simply fall off due to the bumpy Scottish Roads.
+29. Water bottles shall preferably be freebies from sportive rides or found at the side of the road when watching pro races. Under no circumstances should they be discarded until completely spent, even when not matching bike or clothing colours.  The aspiring Euro cyclist is instructed not to leave his water bottles on the bike while transporting bikes via bike rack- this is an obvious faux pas for the the Scottish cyclist, as they would simply fall off due to the bumpy Scottish Roads.
