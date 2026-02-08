@@ -1,4 +1,4 @@
-Official Rules of the Scottish Cyclist, by Owen Phillipson (https://web.archive.org/web/20170430074406/http://www.owenphilipson.com/blog/)
+Official Rules of the Scottish Cyclist, by Owen Phillipson [archived blog](https://web.archive.org/web/20170430074406/http://www.owenphilipson.com/blog/)
 
 1. Practicality and functionality shall be the primary concerns of the Scottish Cyclist. Under no circumstances should the Scottish Cyclist pay heed to aesthetics or style, either in his/her bicycle or clothing.
 
